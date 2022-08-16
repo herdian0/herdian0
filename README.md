@@ -1,7 +1,7 @@
-**Hi👋**
+**Hi there👋**
 
-I'm Herdian and i'm currently still learning about data analytics.
-This is my first time using github, i would love to learn about anything not only limited to data analytics. 
+A long life learner and currently study data analytics.
+cheer for me guys!
 
 **feel free to follow 😄**
 
